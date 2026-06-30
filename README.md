@@ -1,2 +1,0 @@
-# FALTU-TEST-KRNE-K-LIYE
-AISE HI bhai
